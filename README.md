@@ -1,2 +1,0 @@
-# siyuanandweijing.github.io
-entry
